@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @rorybaloney845
-- 👀 I’m interested in Waterpolo
+- 👋 Hi, I’m Rory
+- ⚾ I'm a baseball player
 - 📫 You can reach me at Discord rorymhny
 
 <!---
